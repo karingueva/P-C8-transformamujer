@@ -1,1 +1,3 @@
 # P-C8-transformamujer
+# https://finanzas016.webnode.pe/
+# Es una página web de conexión que actúa como puente estratégico entre mujeres emprendedoras que buscan financiamiento y una amplia red de entidades que ofrecen fondos reembolsables y no reembolsables. La plataforma centraliza y facilita el acceso a opciones de financiamiento, sin proveer los fondos directamente, aliviando la carga de búsqueda e investigación. Las usuarias pueden acceder a oportunidades ofrecidas por organizaciones públicas, privadas, gubernamentales y no gubernamentales, permitiéndoles encontrar la opción adecuada para sus necesidades de forma eficiente y personalizada.
